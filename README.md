@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Samarth Mulimani<br>👀 I’m interested in Coding Stuff<br>🌱 I’m currently learning Cyber Security<br>📫 How to reach me samarthmulimani4@gmail.com<br>⚡ Fun fact: I Am Engineering Student. @Cambridge Institute Of Technology North Campus
+👋 Hi, I’m Samarth Mulimani<br>👀 Not interested just curious<br>🌱 I’m currently learning Cyber Security<br>📫 How to reach me samarthmulimani4@gmail.com<br>⚡ Fun fact: I Am Engineering Student. @Cambridge Institute Of Technology North Campus
 
 
 ## 🌐 Socials:
